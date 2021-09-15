@@ -1,6 +1,6 @@
 # Coursework
 
-The name is Ulrich, and my coursework is going to be great.
+The name is Ulrich and Philipp, and my coursework is going to be great.
 
 ---
 
